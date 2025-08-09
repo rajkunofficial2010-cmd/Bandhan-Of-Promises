@@ -1,0 +1,1 @@
+This website is originally made by a student name Rajkumar from Army Public School LBS Marg Lucknow and this content is strictly restricted to be copied or remixed,on copy or remixing this website you are eligible for be charged by Rajkumar. 
